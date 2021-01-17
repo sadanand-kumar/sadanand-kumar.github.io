@@ -1,1 +1,0 @@
-# sadanand-kumar.github.io
